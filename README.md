@@ -1,1 +1,1 @@
-# comnputador
+# computador
